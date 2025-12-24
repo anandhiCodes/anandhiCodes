@@ -36,3 +36,5 @@ Some of my recent focuses include:
 ### 📫 Let's Connect!
 * 💼 **LinkedIn:** https://www.linkedin.com/in/anandhi-yesubalan-8a28b0312
 * 📧 **Email:** anandhiyesubalan@gmail.com
+
+🎯"Code is like humor. When you have to explain it, it’s bad." – Cory House
